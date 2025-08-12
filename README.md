@@ -77,4 +77,5 @@ While it's legal to **download Twitter videos** for personal use, always respect
 👉 Visit [**TwitterVideoIndir.com**](https://twittervideoindir.com/) today and start downloading your favorite Twitter videos in seconds!
 
 ## Friends Link
-[Tap.Bio](https://tap.bio/@TwittterXVideo)
+- [Tap Bio](https://tap.bio/@TwittterXVideo)
+- [bento](https://bento.me/xvideo)
