@@ -79,3 +79,4 @@ While it's legal to **download Twitter videos** for personal use, always respect
 ## Friends Link
 - [Tap Bio](https://tap.bio/@TwittterXVideo)
 - [bento](https://bento.me/xvideo)
+- [Startup Frame](https://startupfa.me/twitterxvideo)
