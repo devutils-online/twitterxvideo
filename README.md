@@ -80,3 +80,6 @@ While it's legal to **download Twitter videos** for personal use, always respect
 - [Tap Bio](https://tap.bio/@TwittterXVideo)
 - [bento](https://bento.me/xvideo)
 - [Startup Frame](https://startupfa.me/twitterxvideo)
+- [folllio](https://folll.io/twitterxvideo)
+- [FrogDR](https://frogdr.com/twittervideoindir.com)
+- [linktree](https://linktr.ee/twitterxvideo)
