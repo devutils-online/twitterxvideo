@@ -84,3 +84,5 @@ While it's legal to **download Twitter videos** for personal use, always respect
 - [FrogDR](https://frogdr.com/twittervideoindir.com)
 - [linktree](https://linktr.ee/twitterxvideo)
 - [Twitch](https://www.twitch.tv/twitterxvideo/about)
+- [Onee](https://onee.page/twitterxvideo)
+- [ollama](https://ollama.com/twitterxvideo)
