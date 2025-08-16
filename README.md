@@ -92,3 +92,5 @@ While it's legal to **download Twitter videos** for personal use, always respect
 - [Gravatar](https://gravatar.com/saladcasuallycb90938767)
 - [dibiz](https://www.dibiz.com/duanhjlt+xvideo)
 - [proko](https://www.proko.com/@twitterxvideo)
+- [Behance](https://www.behance.net/bratgenerator)
+- [linkr.bio](https://linkr.bio/bratgenerator)
